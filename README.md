@@ -1,3 +1,3 @@
 # UP-html-cindy
 # web design
-https://www.canva.com/design/DAFwEXYAAQQ/M5fJK98CaYwM6dwI8jhFlQ/edit?utm_content=DAFwEXYAAQQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAFwudxXfyU/5LEVl_wlCadPdTzm1xcQZA/view?utm_content=DAFwudxXfyU&utm_campaign=designshare&utm_medium=link&utm_source=editor
